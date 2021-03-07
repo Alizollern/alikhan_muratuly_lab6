@@ -1,0 +1,1 @@
+# alikhan_muratuly_lab6
